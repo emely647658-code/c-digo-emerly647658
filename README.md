@@ -7,7 +7,7 @@
 
 -----
 
-:computer: **Software Engineer**  
+:computer: **Diseñadora Grafica**  
 :eyeglasses: **Hardcore Geek (is geek still used?)**  
 :oncoming_automobile: **SpaceX, technology, and simulator fan**  
 
