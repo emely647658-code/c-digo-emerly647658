@@ -8,8 +8,8 @@
 -----
 
 :computer: **Diseñadora Grafica**  
-:eyeglasses: **Hardcore Geek (is geek still used?)**  
-:oncoming_automobile: **SpaceX, technology, and simulator fan**  
+:eyeglasses: **Friki de los marcadores**  
+:oncoming_automobile: **fan de los libros de romance**  
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
